@@ -1,0 +1,2 @@
+# abdrahman
+Tidakseharusnyacintaselalumemiliki
